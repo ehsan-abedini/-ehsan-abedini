@@ -1,7 +1,7 @@
 # Ehsan Abedini, PhD 👋
 
 Researcher in **Health Management and Policy**  
-*Health Sciences Research Center, Mazandaran University of Medical Sciences*
+*Health Sciences Research Center, Mazandaran University of Medical Sciences, Sari, Iran*
 
 ---
 
