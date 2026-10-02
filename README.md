@@ -12,3 +12,5 @@ Researcher in **Health Management and Policy**
 ### 📝 Academic Service & Editorial Roles
 - **Academic Editor:** [PLOS ONE](https://journals.plos.org/plosone/)
 - **Reviewer:** [Web of Science / Publons](لینک پروفایل خودتان)
+
+- 🌐 **Wikidata:** [Q141622304](https://www.wikidata.org/wiki/Q141622304)
